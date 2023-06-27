@@ -1,5 +1,3 @@
-# 💫 About Me:
-Just your friendly neighborhood Ahmed here. Wanna Chat? Don't hesitate to hit me up on Discord "A7ussein#5504"<br>
 
 
 ## 🌐 Socials:
